@@ -1,0 +1,3 @@
+"# Strikt" 
+"# Strikt" 
+"# Strikt" 
